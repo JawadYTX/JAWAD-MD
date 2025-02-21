@@ -138,7 +138,7 @@ Click on Paring Code To Get Seasion ID To Start The JAWAD-MD If Getting Error Us
 
 Stay connected with the latest updates and community by joining our official WhatsApp group and channel. You can also contact the owner directly.
 
-[![WhatsApp Channel](https://img.shields.io/badge/Join-WhatsApp%20Channel-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029Vb5n6oH0QeaoT1Shcn35)
+[![WhatsApp Channel](https://img.shields.io/badge/Join-WhatsApp%20Channel-25D366?style=for-the-badge&logo=whatsapp)]([https://whatsapp.com/channel/0029Vb5n6oH0QeaoT1Shcn35](https://wa.me/967775056581))
 
 
 ## ⚠️ Reminder
